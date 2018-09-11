@@ -1,2 +1,0 @@
-# paulista-motos
-paulista-motos
